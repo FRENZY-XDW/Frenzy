@@ -1,2 +1,0 @@
-# Frenzy
-I am frenzy
